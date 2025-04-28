@@ -1,1 +1,1 @@
-[EVERYTHING](https://linktr.ee/itsamolsan)
+[EVERYTHING](https://linktr.ee/numbpulse)
